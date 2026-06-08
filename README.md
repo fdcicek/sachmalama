@@ -1,0 +1,2 @@
+# sachmalama
+SelamınAleyküm kankalar
